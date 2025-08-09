@@ -1,2 +1,0 @@
-# Kemet
-Kemetgift coming soon 
